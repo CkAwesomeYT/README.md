@@ -9,4 +9,4 @@ About me:
  I am a school student at an all boys high school.
  My interest is mainly around Computor Science.
 
-Feel free to contact me via Discord or via my gmail at "ckawesomeyt@gmail.com"
+Feel free to contact me via Discord "ck_awesomeyt." or via my gmail at "ckawesomeyt@gmail.com"
